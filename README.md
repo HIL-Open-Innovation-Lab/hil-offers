@@ -19,7 +19,7 @@ HIL is offering a wide range of positions in data science, user / patient experi
 Positions range from working students, young, medium to senior level experts. 
 
 See the following pages:
-- Job offers in EN or DE
+- Job offers in [EN](job-offers/Job-Profiles-Innovation-Lab-en-final.pdf) or [DE](job-offers/Job-Profiles-Innovation-Lab-de-final.pdf)
 
 
 ## Thesis Offers - Scientific Work for Bachelor, Master or PhD
