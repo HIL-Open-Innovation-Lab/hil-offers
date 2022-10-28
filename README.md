@@ -18,6 +18,12 @@ HIL is offering a wide range of positions in data science, user / patient experi
 
 Positions range from working students, young, medium to senior level experts. 
 
+See the following pages:
+- Job offers in EN or DE
+
+
+## Thesis: Scientific Work for Bachelor, Master or PhD
+
 We offer in addition bachelor, master and PhD thesis in our HIL and beyond. Join as a student on all levels as a working student and experience the flavors of world leading research and development.
 
 Apply now for one of the following positions!
