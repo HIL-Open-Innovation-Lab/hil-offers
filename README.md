@@ -25,8 +25,6 @@ Apply now for one of the following positions!
 Any questions for bachelor, master or PhD thesis? 
 Email to andre.baumgart(at)medma.uni-heidelberg.de
 
-![image](https://user-images.githubusercontent.com/70061343/198593923-d51d01b2-1669-4d96-a365-187c49ffed7a.png)
-
 
 ## Our Partner Network
 
