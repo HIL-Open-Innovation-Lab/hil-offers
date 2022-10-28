@@ -33,9 +33,6 @@ Any questions for bachelor, master or PhD thesis?
 Email to andre.baumgart(at)medma.uni-heidelberg.de
 
 
-![IMG_1263](https://user-images.githubusercontent.com/70061343/198673404-d1a7265f-2d30-4e24-9b21-192c90b351c8.JPG)
-
-
 ## Our Partner Network
 
 ![image](https://user-images.githubusercontent.com/70061343/198593205-23c95979-5a1c-4092-a4af-95f2ef6f7fd8.png)
