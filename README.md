@@ -12,3 +12,5 @@ We are leveraging exponential health technologies – e.g. precision health tech
 Join our mission!  
 
 ![image](https://user-images.githubusercontent.com/70061343/198570139-1ac621af-0641-4f83-b661-d59ef130c14d.png)
+
+![image](https://user-images.githubusercontent.com/70061343/198593205-23c95979-5a1c-4092-a4af-95f2ef6f7fd8.png)
