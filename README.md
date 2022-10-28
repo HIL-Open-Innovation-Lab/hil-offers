@@ -22,7 +22,7 @@ See the following pages:
 - Job offers in EN or DE
 
 
-## Thesis: Scientific Work for Bachelor, Master or PhD
+## Thesis Offers - Scientific Work for Bachelor, Master or PhD
 
 We offer in addition bachelor, master and PhD thesis in our HIL and beyond. Join as a student on all levels as a working student and experience the flavors of world leading research and development.
 
